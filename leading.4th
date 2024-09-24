@@ -1,1 +1,1 @@
-123 456 +
+.(Managers serve as leaders for the organization, in practical as well as symbolic ways. The manager may lead work teams or groups through a new process or the development of a new product. The manager may also be seen as the leader of the organization when it interacts with the community, customers, and suppliers.) CR
